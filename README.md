@@ -1,1 +1,1 @@
-# seika-2q-self_introduction
+# seika-2q-self-introduction
